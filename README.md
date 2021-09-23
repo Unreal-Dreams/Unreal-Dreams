@@ -17,7 +17,7 @@ I am a versatilist and easily adapt to different hats (Competitive Programmer �
 - 👨🏻‍💻 &nbsp; Most of my projects are available on [Github](https://github.com/Unreal-Dreams)
 - 💬 &nbsp; Ask me about anything tech related, I am happy to help.
 - 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/vaibhav-kumar-25b35241/)
-- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1Ml9https://drive.google.com/file/d/1SLfC0o0AU1GicXe_8PLOp4qJyaSxSQwD/view?usp=sharingJaPg3OM7O8sDU18TkoKd2bkT01mst/view?usp=sharing)
+- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1SLfC0o0AU1GicXe_8PLOp4qJyaSxSQwD/view?usp=sharing)
 - 📚 &nbsp; When I am free, I like to watch anime and F1.
 
 <br>
