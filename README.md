@@ -14,11 +14,11 @@ I am a versatilist and easily adapt to different hats (Competitive Programmer �
 
 - 🔭 &nbsp; I currently spending most of the time on enhancing my **Problem Solving Skills**.
 - 🤝 &nbsp; I’m looking for Full time job Oppurtunities in software Domain.
-- 👨🏻‍💻 &nbsp; Most of my projects are available on [Github](https://github.com/rahulrauni/)
+- 👨🏻‍💻 &nbsp; Most of my projects are available on [Github](https://github.com/Unreal-Dreams)
 - 💬 &nbsp; Ask me about anything tech related, I am happy to help.
-- 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/rahul-raj-12107515b/)
-- 📝 &nbsp; Checkout my [resume](https://drive.google.com/drive/folders/1NC0IKZ0mU6Z8wKCVR1391OThAIR09UYh?usp=sharing)
-- 📚 &nbsp; When I am free, I play Football, Volleyball and love to solve Soduku.
+- 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/vaibhav-kumar-25b35241/)
+- 📝 &nbsp; Checkout my [resume](https://drive.google.com/file/d/1Ml9JaPg3OM7O8sDU18TkoKd2bkT01mst/view?usp=sharing)
+- 📚 &nbsp; When I am free, I like to watch anime and F1.
 
 <br>
 
