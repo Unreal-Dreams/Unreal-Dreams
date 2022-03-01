@@ -13,7 +13,7 @@ I am a versatilist and easily adapt to different hats (Competitive Programmer �
 ### 🧐 More About Me:
 
 - 🔭 &nbsp; I currently spending most of the time on enhancing my **Problem Solving Skills**.
-- 🤝 &nbsp; I’m looking for Full time job Oppurtunities in software Domain.
+- 🤝 &nbsp; I have been doing software developement for 3 years now during this time I have worked with companies like Microsoft, JungleWorks, Bolo Indya, headstrt and Kisan Vikas. 
 - 👨🏻‍💻 &nbsp; Most of my projects are available on [Github](https://github.com/Unreal-Dreams)
 - 💬 &nbsp; Ask me about anything tech related, I am happy to help.
 - 📫 &nbsp; Feel free to ping me on [LinkedIn](https://www.linkedin.com/in/vaibhav-kumar-25b35241/)
